@@ -5,6 +5,7 @@
 - 📫 How to reach me... 
 -  message me on LinkedIn : [Koketso LinkedIn](https://www.linkedin.com/in/koketso-imogiant/)
 -  email me on [Click here to mail me](mailto:imogiantkoketso@gmail.com)
+-  book thirty minutes with me on my [Calendly](https://calendly.com/koketsoimogiant/30min)
 -  Or if you just want to take a look at my profile which I am busy building check : [Koketso Profile](https://koketsoimogiant.github.io/)
 
 <!---
